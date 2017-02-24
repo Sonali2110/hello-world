@@ -1,3 +1,3 @@
 # hello-world
-Just another repository
-Hiii i m sonali
+
+Hiii i m sonali. I LOVE TO VISIT NEW PLACES.
